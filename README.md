@@ -8,6 +8,7 @@ http://annaridler.com/ \
 https://www.tate.org.uk/art/artworks/horn-still-water-the-river-thames-for-example-76675 \
 https://publicartarchive.org/art/Historic-Site/3dd24bba \
 https://occupygeorge.com/ \
+http://centerforvisualmusic.org/Fischinger/newdvd.htm \
 
 
 
